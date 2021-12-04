@@ -8,4 +8,4 @@
 ![hatori](https://cdn.dnaindia.com/sites/default/files/styles/full/public/2018/12/08/762569-ninja-hattori-family.jpg)
 
 
-
+![rings](https://m.media-amazon.com/images/M/MV5BYTQzZjhiYjYtNDMzOS00ZjNiLTg2MGMtYWZmYWNjN2U5YTVmXkEyXkFqcGdeQXVyNjI3OTcxOTU@._V1_FMjpg_UX1000_.jpg)
